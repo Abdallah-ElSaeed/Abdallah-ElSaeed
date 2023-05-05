@@ -6,4 +6,4 @@
 -     LinkedIn: https://www.linkedin.com/in/abdallah-radwan-0824ab20b
 -     Email: abdallahradwan2000@gmail.com
 
--Currently I'm Looking for a part-time remote job/internship
+- Currently I'm Looking for a part-time remote job/internship
